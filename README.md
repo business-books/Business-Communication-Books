@@ -2,7 +2,7 @@ Business communication is the interaction of communication subjects to achieve c
 
 Business communication book PDF in a general sense is a book on the information exchange between people or their groups. There are interpersonal, social (functional-role), business communications. The subject of our conversation will be the last view.
 
-<a href="https://e-book.business/business-communication/">Business communication book PDF</a> explains the interaction in the field of official relations, the purpose of which is to solve specific tasks, achieve certain results, optimize any activity. At the same time, each participant has his own st
+<a href="https://businessbooks.cc/business-communication/">Business communication book PDF</a> explains the interaction in the field of official relations, the purpose of which is to solve specific tasks, achieve certain results, optimize any activity. At the same time, each participant has his own st
 
 If communication takes place between people who are on different rungs of the career ladder (the manager and the performer), then there is a vertical relationship, that is, subordination relations. If the interaction is conducted on the principles of equal cooperation, then this is a horizontal relationship. It is business communications that a person carries out daily at work, at university, in schools, and official institutions.
 
